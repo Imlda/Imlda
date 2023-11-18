@@ -1,0 +1,5 @@
+- 😗 Hi, I’m @Imlda
+- 👀 I’m interested in money
+- 🌱 I’m currently learning coding
+- 📫 How to reach me imeldasuita2007@gmail.com
+- 🎮 Genshin uid: 806051203
